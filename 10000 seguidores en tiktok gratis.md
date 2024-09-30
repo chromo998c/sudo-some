@@ -1,4 +1,4 @@
-# (NUEVO!~) 10,000 Seguidores en Tiktok gratis para iOS y Android: Follower en Tiktok Gratuito~
+# (NUEVO!) 10,000 Seguidores en Tiktok gratis para iOS y Android: Follower en Tiktok Gratuito
 
 ### **[HAGA CLIC AQUI](https://lookerstudio.google.com/reporting/4a4c991e-8a6f-4166-9a6a-86aadd433a8c)**
 
